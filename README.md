@@ -1,3 +1,1 @@
-# rizzlerofozz
-- ohio
-- rizz
+- kys
